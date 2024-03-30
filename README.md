@@ -1,1 +1,1 @@
-![Alt text](/public/Screenshot_20240329214419)
+![Alt text](/public/Screenshot_20240329214419.png)
